@@ -10,6 +10,7 @@
  ✉️ **Email:**  [megaandros@gmail.com](mailto:megaandros@gmail.com)  
 📱 **Telegram:** [@MariaAkulova](https://t.me/MariaAkulova)  
  🔗 **LinkedIn:**  [maria-akulova](https://www.linkedin.com/in/maria-akulova-96b12220/)  
+ **Discord:** Mariia Akulova (@megaandros)
 
 ********
 
